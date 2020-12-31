@@ -2,5 +2,5 @@
 
 I am Aniket Jain.
 Currently pursuing Btech from Oriental institute of science and Technology, Bhopal in Information Technology
-I am have done my schooling from Vatsalya senior Secondary School, Sagar
-My hobbies is play cricket and mobile games.
+I have done my schooling from Vatsalya senior Secondary School, Sagar
+My hobbies are play cricket and mobile games.
